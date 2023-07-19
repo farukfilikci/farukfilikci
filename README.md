@@ -1,5 +1,5 @@
 # 💫 About Me:
-working cyber security
+Cyber Security Analyst
 
 
 ## 🌐 Socials:
